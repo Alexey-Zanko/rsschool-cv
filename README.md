@@ -1,1 +1,1 @@
-https://Alexey-Zanko.io/rsschool-cv/cv
+https://alexey-zanko.io/rsschool-cv/
